@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Yumirl8071
+- I'm currently interested in making games and modding
+- I'm learning Java and GML
+- I'm from Brazil and I'm 16y
