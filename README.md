@@ -7,5 +7,7 @@
 ### You can contact me with:
 
 uminekohater@gmail.com
+
 @Yumirl (on Discord) 
-![DuckWalk](https://tenor.com/pt-BR/view/duck-gif-26090688) 
+
+![DuckWalk](https://tenor.com/pt-BR/view/duck-gif-26090688)
