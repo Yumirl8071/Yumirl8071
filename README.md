@@ -9,5 +9,4 @@
 uminekohater@gmail.com
 
 @Yumirl (on Discord) 
-
-![DuckWalk](https://tenor.com/bVDxI.gif)
+![Duck](https://tenor.com/bVDxI.gif)
