@@ -9,4 +9,4 @@
 uminekohater@gmail.com
 
 @Yumirl (on Discord) 
-![Duck](https://tenor.com/bVDxI.gif)
+<div class="tenor-gif-embed" data-postid="26090688" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/duck-gif-26090688">Duck GIF</a>from <a href="https://tenor.com/search/duck-gifs">Duck GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script> 
